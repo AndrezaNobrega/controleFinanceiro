@@ -12,3 +12,9 @@
 ![alt text](https://media.discordapp.net/attachments/975905192069435395/1067890136647467029/image.png?width=758&height=426)
 
 ![alt text](https://media.discordapp.net/attachments/975905192069435395/1067890321276534964/image.png?width=758&height=426)
+
+![alt text](https://media.discordapp.net/attachments/975905192069435395/1067969567638437898/image.png?width=758&height=426)
+
+![alt text](https://media.discordapp.net/attachments/975905192069435395/1067969677646639195/image.png?width=758&height=426)
+
+![alt text](https://media.discordapp.net/attachments/975905192069435395/1067969884975288410/image.png?width=758&height=426)
